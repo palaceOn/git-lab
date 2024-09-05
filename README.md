@@ -1,2 +1,0 @@
-Caden Rogers
-palaceOn
